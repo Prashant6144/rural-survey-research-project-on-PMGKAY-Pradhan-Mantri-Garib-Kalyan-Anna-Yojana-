@@ -1,0 +1,2 @@
+# rural-survey-research-project-on-PMGKAY-Pradhan-Mantri-Garib-Kalyan-Anna-Yojana-
+This study surveyed 150+ rural beneficiaries to assess PMGKAY’s reach and effectiveness. Most received free food grains and found it helpful during COVID-19. Challenges included irregular supply and low awareness. The project highlighted the scheme’s importance while suggesting improvements in communication and distribution for better impact.
